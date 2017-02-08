@@ -47,6 +47,8 @@ Interaction  with other  P.L  and  More  Advanced  and Big SHY P.L like  Jdollar
 
 are  the  examples  for  External  Advanced Business..
 
+External  Advanced Business  Technology  is DOTJWEBFRAMEWORK  which is  invented  by  wilmix jemin j.
+
 
 External  Business stands   for  prosperity ,high  security.
 
