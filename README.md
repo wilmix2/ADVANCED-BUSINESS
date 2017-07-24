@@ -93,4 +93,31 @@ Business  will  operate   without clients  and  companies..
 Independant  Advanced Business  will be  act  as client  company.
 
 
-(will   come  later   at year  2020)
+(will   come  later   at year  2020) .
+
+FAQS
+====
+What   will   be  the  Wilmix real independant technology  at  year  2020?
+
+??????
+
+What   will   be my real independant company  at  year  2020?
+
+????
+
+What   will   be the  real independant  God jehovah   company  at  year  2020?
+
+????
+
+=================================
+
+
+
+
+
+
+
+
+
+
+
