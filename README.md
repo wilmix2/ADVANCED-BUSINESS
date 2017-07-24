@@ -31,6 +31,9 @@ Bibble verse :Revelation  21  "All  things   made  new   ;  there  will be no mo
 Based   on  the  Bibble  verse   ADVANCEDBUSINESS word   is  formed  ....
 
 
+================================================================================
+
+
 The  Types of Advanced Business  are
 
 
