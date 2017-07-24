@@ -20,6 +20,17 @@ And  Advanced  Business  is much more  greater  than money".
 Which   is  invented  by  wilmix jemin j  at  year  2010 ,  as  the  Wisdom  of  God.
 
 
+How   the  word   Advanced  Business   is  formed?
+=====================================================
+
+The  Word   ADVANCED BUSINESS   is   came   from  
+
+Bibble verse :Revelation  21  "All  things   made  new   ;  there  will be no more  pain  or cry"
+
+
+Based   on  the  Bibble  verse   ADVANCEDBUSINESS word   is  formed  ....
+
+
 The  Types of Advanced Business  are
 
 
@@ -79,4 +90,4 @@ Business  will  operate   without clients  and  companies..
 Independant  Advanced Business  will be  act  as client  company.
 
 
-
+(will   come  later   at year  2020)
