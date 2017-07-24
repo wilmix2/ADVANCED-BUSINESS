@@ -105,15 +105,23 @@ What   will   be my real independant company  at  year  2020?
 
 ????
 
-What   will   be the  real independant  God jehovah   company  at  year  2020?
+
+
+d)  MOST ADVANCED  INDEPENDANT  BUSINESS
+ =======================================
+
+According   Wilmix  or  william   theory  states    that    Most  Advanced   Independant  business
+
+will   run  without  the  support   of  clients,  companies,  govt  ,etc.
+
+such   Most advanced  Independant  Advanced Business  will be  act  as client tier infinitive  company.
+
+
+What   will   be the  real independant  God jehovah   company  at  year  2025?
 
 ????
 
-=================================
-
-
-
-
+=================================================================================================================
 
 
 
