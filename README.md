@@ -2,7 +2,9 @@
 ======================
 
 
-Advanced  Business domain  is  invented  by  wilmix jemin j  at  year  2010. 
+Advanced  Business domain  is  invented  by  wilmix jemin j  at  year  2010  focused  only  for    wilmixsolomon
+
+and  writ  technologies  and  not  focused  for  other  technologies  like  java/j2ee,android,  and  other  new  technologies.
 
 
 
