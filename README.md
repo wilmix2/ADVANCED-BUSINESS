@@ -4,7 +4,7 @@
 
 Advanced  Business domain  is  invented  by  wilmix jemin j  at  year  2010  focused  only  for    wilmixsolomon
 
-and  writ  technologies  and  not  focused  for  other  technologies  like  java/j2ee,android,  and  other  new  technologies.
+and  writ  technologies  and  not  focused  for  other  technologies  like  java/j2ee,  and  other  new  technologies.
 
 
 
@@ -95,17 +95,6 @@ Business  will  operate   without clients  and  companies..
 Independant  Advanced Business  will be  act  as client  company.
 
 
-(will   come  later   at year  2020) .
-
-FAQS
-====
-What   will   be  the  Wilmix real independant technology  at  year  2020?
-
-??????
-
-What   will   be my real independant company  at  year  2020?
-
-????
 
 
 
@@ -119,9 +108,6 @@ will   run  without  the  support   of  clients,  companies,  govt  ,etc.
 such   Most advanced  Independant  Advanced Business  will be  act  as client tier infinitive  company.
 
 
-What   will   be the  real independant  God jehovah   company  at  year  2025?
-
-????
 
 =================================================================================================================
 
